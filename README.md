@@ -1,0 +1,2 @@
+# coolstories.net
+Epic Stories!
